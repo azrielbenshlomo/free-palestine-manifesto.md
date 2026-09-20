@@ -14,7 +14,7 @@ This manifesto defines the expectations and demands of a responsible, globally c
 The Free Palestine movement calls for a political reset in Israel. Leadership change is essential to:
 
 - acknowledge responsibility for strategic failures  
-- end policies that harmed Palestinian civilians  
+- end policies that excessively harmed Palestinian civilians  
 - restore credibility with the international community  
 - open the door to a new era of diplomacy and coexistence
 - requires the cooperation of the People of Israel
